@@ -1,4 +1,4 @@
-# intro and purpose
+# Intro and purpose
 
 Water for all - for a better world.
 
